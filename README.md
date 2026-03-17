@@ -1,2 +1,2 @@
 # MyProjects
-This repositoty show how much i practice
+This repositorie show how much i practice
